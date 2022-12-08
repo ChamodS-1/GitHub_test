@@ -1,0 +1,1 @@
+But first – what is the difference between taking and making notes? You take notes in lectures or seminars, writing down what other people are saying for future reference. You make notes from reading books, journals, any form of text.
